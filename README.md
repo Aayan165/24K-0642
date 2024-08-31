@@ -11,4 +11,4 @@ My name is **Syed Aayan Mahmood**, and I am pursuing a Bachelor of ***Computer S
 
 [Coding and Programming](https://images.app.goo.gl/ymdRhQZkzZFvdk1A6)
 
-[Football}(https://images.app.goo.gl/8frfupjXZKeqQ9P89)
+[Football](https://images.app.goo.gl/8frfupjXZKeqQ9P89)
